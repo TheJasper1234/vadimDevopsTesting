@@ -6,5 +6,6 @@
 
 
 
-Hello to this guild!~
+Hello to this guild!~ 
+
 first of all hello.....
